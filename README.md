@@ -1,5 +1,4 @@
 
-![RJ](https://github.com/user-attachments/assets/d28d4959-bc7f-428c-8d9d-5c03e012ddee)
 
 
 
